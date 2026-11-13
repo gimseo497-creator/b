@@ -1,0 +1,1 @@
+SERA image folder.
